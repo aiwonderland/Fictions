@@ -1,5 +1,7 @@
 # The Creeper’s Farewell
 
+In 2026.07.24 by aiwonderland
+
 The player had lived alone in the snow pine forest for half a season. Wind howled nonstop outside the log cabin, and snow piled high against the planks. One afternoon while climbing the frosty peak to mine coal, he spotted a creeper trapped in a cage of jagged ice spikes. The mob’s signature hissing was weak and trembling, no hint of its usual ferocity.
 
 He chipped away the ice block by block with his pickaxe, carefully staying clear in case of fright. Once free, the creeper lingered instead of fleeing into the woods. It trailed behind him all the way down the mountain, shuffling slowly, never drawing close enough to threaten an explosion.
